@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **pcsolaggy123@gmail.com**
 
-- ⚡ Fun fact **I'm very keen on anime so if you are, can we be friends 😘😘**
+ - ⚡ Fun fact **I'm very keen on anime so if you are too, can we be friends 😘😘**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
